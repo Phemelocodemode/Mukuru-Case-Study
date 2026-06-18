@@ -173,5 +173,5 @@ Several data quality observations were noted during the analysis:
 BSc Information Technology — Richfield Graduate Institute of Technology (2025)
 
 [GitHub](https://github.com/Phemelocodemode) |
-[LinkedIn](https://linkedin.com/in/phemelo-sebopelo) |
+[LinkedIn](https://www.linkedin.com/in/phemelo-sebopelo-a428712b2/) |
 phemelosebopelo14@gmail.com
